@@ -12,4 +12,4 @@ I'm **Tejas**, currently pursuing my **B.Tech degree** at **MIT Bangalore** 🎓
 
 ---
 
-🔥 **Follow me on GitHub!** 🚀  
+ **Follow me on GitHub!** 🚀  
